@@ -6,3 +6,4 @@
 
 ### 1. 취미 업데이트  
 ### 2. 특기 업데이트 
+https://www.dropbox.com/request/RSoYIqb75RNGuGJWmLnI
